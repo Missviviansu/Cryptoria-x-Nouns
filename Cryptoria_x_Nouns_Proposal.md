@@ -134,7 +134,7 @@ Cryptoria, the leading Chinese-language Web3 podcast with 12,000+ followers and 
 | Transcription (6 × $100) | $600 | |
 | **Distribution & Promotion** | **$1,400** | **16%** |
 | Visual content (covers, infographics, quotes) | $700 | |
-| Shorts production (YouTube/Bilibili, 5 episodes) | $300 | |
+| Shorts production (YouTube/Bilibili, 6 episodes) | $300 | |
 | Social media management (3 months) | $400 | |
 | **Community Building** | **$400** | **4%** |
 | Bilingual show notes (6 episodes) | $400 | |

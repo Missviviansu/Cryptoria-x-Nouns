@@ -212,6 +212,6 @@ Anyone can translate, remix, redistribute, teach with, or build upon our content
 
 ---
 
-**Let's make Nouns truly global. Let's make Nouns Nounish in Mandarin. ⌐◨-◨**
+**⌐◨-◨**
 
 *November 2025 | All feedback welcome*
